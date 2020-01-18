@@ -1,1 +1,1 @@
-# TELESIO & MASANQUE BSIT-1A  prelims-exam
+# TELESIO & MASANQUE BSIT-1A  prelims exam
